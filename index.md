@@ -44,5 +44,15 @@ White Ink on wood panel - Mahogany stain
 12” (L) x 12” (W) x 0.75” (thick)
 
 
+<img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/IMAGE%20%233a%20-%20KG00448%20Sample%20-%20Canadian%20Maple%20%2B%20White%20Ink%20-%20%20(double%20coat)%20dippen%20-%20No%20Gesso.jpg" width="100%">
+
+
+KG 00448 – “Order”		          ** SOLD **
+
+
+White Ink on wood panel - Canadian Maple stain
+
+12” (L) x 12” (W) x 0.75” (thick)
+
 
 
