@@ -14,5 +14,8 @@ You can find the source code for Jekyll at GitHub:
 [jekyll][jekyll-organization] /
 [jekyll](https://github.com/jekyll/jekyll)
 
+This is what I look like on a good day:
+![My face][avatar]
 
 [jekyll-organization]: https://github.com/jekyll
+[avatar]: https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/awesome-face.png
