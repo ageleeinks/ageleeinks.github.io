@@ -24,6 +24,10 @@ In sharing with the world, you’ll see things in each unique design. Perhaps, i
 So, let yourself venture with these “transitory/momentary” ink forms.
 
 
+<img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/IMAGE%20%231%20-%20KG01567%20Sample%20-%20Dark%20Oak%20%2B%20White%20Ink%20-%20%20(double%20coat)%20dippen%20-%20No%20Gesso.jpg" width="50%">
 
+KG 01567 – “Truth”		          ** SOLD **
 
+Description:	White Ink on wood panel (Dark Oak stain)
+Dimensions:	12” (L) x 12” (W) x 0.75” (thick)
 
