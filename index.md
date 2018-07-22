@@ -29,7 +29,20 @@ So, let yourself venture with these “transitory/momentary” ink forms.
 KG 01567 – “Truth”		          ** SOLD **
 
 
-White Ink on wood panel (Dark Oak stain)
+White Ink on wood panel | Dark Oak stain
 
 12” (L) x 12” (W) x 0.75” (thick)
+
+
+<img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/IMAGE%20%232%20-%20KG00793%20Sample%20-%20Mahogany%20%2B%20White%20Ink%20-%20(double%20coat)%20dippen%20-%20No%20Gesso.jpg" width="100%">
+
+KG 00793 – “Musical”		          ** SOLD **
+
+
+White Ink on wood panel | Mahogany stain
+
+12” (L) x 12” (W) x 0.75” (thick)
+
+
+
 
