@@ -28,6 +28,8 @@ So, let yourself venture with these “transitory/momentary” ink forms.
 
 KG 01567 – “Truth”		          ** SOLD **
 
-Description:	White Ink on wood panel (Dark Oak stain)
-Dimensions:	12” (L) x 12” (W) x 0.75” (thick)
+
+White Ink on wood panel (Dark Oak stain)
+
+12” (L) x 12” (W) x 0.75” (thick)
 
