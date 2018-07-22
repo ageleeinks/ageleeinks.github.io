@@ -4,13 +4,8 @@
 
 layout: home
 ---
-
-Yo dawg what's up?
+Testing title
 
 ![my logo][logo]
 
-This is what I look like on a good day:
-![My face][avatar]
-
-[avatar]: https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/awesome-face.png
-[logo]: https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/2018%20Logo%20V.jpg
+[logo]: https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/Title%20Text%20Image%20-%20AgeLeeInks%20Signature%20Block%20Website%2001.PNG
