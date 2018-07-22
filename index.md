@@ -29,7 +29,7 @@ So, let yourself venture with these “transitory/momentary” ink forms.
 KG 01567 – “Truth”		          ** SOLD **
 
 
-White Ink on wood panel | Dark Oak stain
+White Ink on wood panel - Dark Oak stain
 
 12” (L) x 12” (W) x 0.75” (thick)
 
@@ -39,7 +39,7 @@ White Ink on wood panel | Dark Oak stain
 KG 00793 – “Musical”		          ** SOLD **
 
 
-White Ink on wood panel | Mahogany stain
+White Ink on wood panel - Mahogany stain
 
 12” (L) x 12” (W) x 0.75” (thick)
 
