@@ -14,12 +14,12 @@
 # You can create any custom variable you would like, and they will be accessible
 # in the templates via {{ site.myvariable }}.
 title: Age Lee Inks
-email: your-email@example.com
+email: ageleeinks@gmail.com
 description: >- # this means to ignore newlines until "baseurl:"
   Original paintings are available for purchase. For inquiries, please email.
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site, e.g. http://example.com
-github_username:  ageleeinks
+
 instagram_username: ageleeinks
 
 # Build settings
