@@ -9,7 +9,7 @@ layout: home
 &nbsp;
 &nbsp;
 
-#### Welcome to my website and please enjoy your stay!
+**Welcome to my website and please enjoy your stay!**
 
 &nbsp;
 &nbsp;
