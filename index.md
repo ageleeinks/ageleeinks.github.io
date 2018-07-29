@@ -9,7 +9,7 @@ layout: home
 &nbsp;
 &nbsp;
 
-Welcome to my website and please enjoy your stay!
+#### Welcome to my website and please enjoy your stay!
 
 &nbsp;
 &nbsp;
@@ -31,7 +31,7 @@ So, let yourself venture with these *"transitory and momentary"* ink forms.
 
 <img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/IMAGE%20%231%20-%20KG01567%20Sample%20-%20Dark%20Oak%20%2B%20White%20Ink%20-%20%20(double%20coat)%20dippen%20-%20No%20Gesso.jpg" width="100%">
 
-KG 01567 – “Truth”		          ** **SOLD** **
+KG 01567 – “Truth” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
 
 
 White Ink on wood panel - Dark Oak stain
@@ -45,7 +45,7 @@ White Ink on wood panel - Dark Oak stain
 
 <img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/IMAGE%20%232%20-%20KG00793%20Sample%20-%20Mahogany%20%2B%20White%20Ink%20-%20(double%20coat)%20dippen%20-%20No%20Gesso.jpg" width="100%">
 
-KG 00793 – “Musical”		          ** **SOLD** **
+KG 00793 – “Musical” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
 
 
 White Ink on wood panel - Mahogany stain
