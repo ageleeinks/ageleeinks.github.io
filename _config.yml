@@ -17,7 +17,7 @@ title: Age Lee Inks
 email: age@ageleeinks.com
 description: >- # this means to ignore newlines until "baseurl:"
   Original paintings are available for purchase. For inquiries, please email.
-  Copyright &copy;2018 Age Lee
+  Copyright © 2018 Age Lee
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site, e.g. http://example.com
 
