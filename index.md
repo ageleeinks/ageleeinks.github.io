@@ -20,7 +20,7 @@ For these random ink musings – I’ve named them *Kalliglipfs* as my way of su
 
 *Kalliglipfs* are spontaneous intricate designs in a calligraphy style that I have been drawing for the last decade. The Universe and its elements, guiding ink and my pen, manifest itself to all beings.
 
-In sharing with the world, you’ll sense something from each unique design. Perhaps, it’s the energy, some resonance, an impression, or even a connection of some sort. Maybe it’s the tangled strokes or wavy lines of these intricate patterns that reaches out to you in. Whatever it is, it is something between you and these unusual motifs.
+In sharing with the world, you’ll sense something from each unique design. Perhaps, it’s the energy, some resonance, an impression, or even a connection of some sort. Maybe it’s the tangled strokes or wavy lines of these intricate patterns that reaches out to you. Whatever it is, it is something between you and these unusual motifs.
 
 So, let yourself venture with these *"transitory and momentary"* ink forms.
 
