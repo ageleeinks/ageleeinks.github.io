@@ -11,12 +11,12 @@ Some work in progress
 
   </p>
 
-KG 00817 – “The Keyhole” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **Available** **
+&nbsp; &nbsp; &nbsp; KG 00817 – “The Keyhole” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **Available** **
 
 
-White Ink on wood panel - Sesame stain
+&nbsp; &nbsp; &nbsp; White Ink on wood panel - Sesame stain
 
-12” (L) x 12” (W) x 0.75” (thick)
+&nbsp; &nbsp; &nbsp; 12” (L) x 12” (W) x 0.75” (thick)
 
 &nbsp;
 &nbsp;
