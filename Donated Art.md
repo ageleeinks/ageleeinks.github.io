@@ -17,7 +17,7 @@ Recently donated designs
 KG 01915B – “The Followers” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
 
 
-White Ink on wood panel – Canadian Maple stain
+White Ink on wood panel - Canadian Maple stain
 
 12” (L) x 12” (W) x 0.75” (thick)
 
@@ -34,7 +34,7 @@ White Ink on wood panel – Canadian Maple stain
 KG 02096 – “The Uplift” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
 
 
-India Ink on wood panel – Sesame stain
+India Ink on wood panel - Sesame stain
 
 12” (L) x 12” (W) x 0.75” (thick)
 
@@ -53,7 +53,7 @@ India Ink on wood panel – Sesame stain
 KG 00644 – “Gaze of Gold” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
 
 
-Gold and India Ink on wood panel – White stain
+Gold and India Ink on wood panel - White stain
 
 12” (L) x 12” (W) x 0.75” (thick)
 
@@ -74,7 +74,7 @@ Gold and India Ink on wood panel – White stain
 KG 02101B – “Amphora of Gold” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
 
 
-Gold and White Ink on wood panel – Dark Oak stain
+Gold and White Ink on wood panel - Dark Oak stain
 
 12” (L) x 12” (W) x 0.75” (thick)
 
