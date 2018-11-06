@@ -34,12 +34,25 @@ India Ink on wood panel - Sesame stain
 &nbsp;
 
 
-<img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG01915B%20-%20Sample%20-%20Medium%20Brown%20%2B%20White%20Ink.jpg" width="100%">
+<img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG01990-Pic1.jpg" width="100%">
 
-KG 01915B – “The Followers” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **Available** **
+KG 01990 – “The Dance” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **Available** **
 
 
-White Ink on wood panel – Canadian Maple stain
+India Ink on wood panel - Sesame stain
+
+12” (L) x 12” (W) x 0.75” (thick)
+
+&nbsp;
+&nbsp;
+
+
+<img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG01867C-Pic1.jpg" width="100%">
+
+KG 01867C – “Stalk of Gold” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **Available** **
+
+
+India and Coloured Inks on wood panel - Medium Brown stain
 
 12” (L) x 12” (W) x 0.75” (thick)
 
