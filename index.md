@@ -80,5 +80,19 @@ White Ink on wood panel - Canadian Maple stain
 
 12” (L) x 12” (W) x 0.75” (thick)
 
+&nbsp;
+&nbsp;
+
+
+
+<img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG00989-Pic1.jpg" width="100%">
+
+
+KG 00989 – “Torqued” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **Available** **
+
+
+White Ink on wood panel - Cherry stain
+
+12” (L) x 12” (W) x 0.75” (thick)
 
 
