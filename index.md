@@ -56,6 +56,19 @@ White Ink on wood panel - Mahogany stain
 &nbsp;
 
 
+<img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG00797-Pic1.jpg" width="100%">
+
+KG 00797 – “The Spirit Urn” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
+
+
+Gold Ink on wood panel - Black stain
+
+12” (L) x 12” (W) x 0.75” (thick)
+
+&nbsp;
+&nbsp;
+
+
 
 <img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/IMAGE%20%233a%20-%20KG00448%20Sample%20-%20Canadian%20Maple%20%2B%20White%20Ink%20-%20%20(double%20coat)%20dippen%20-%20No%20Gesso.jpg" width="100%">
 
