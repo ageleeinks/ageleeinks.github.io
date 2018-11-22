@@ -31,7 +31,7 @@ White Ink on wood panel - Canadian Maple stain
 
 <img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG02096-Pic1.jpg" width="100%">
 
-KG 02096 – “The Uplift” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
+KG 02096 – “The Uplift” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
 
 
 India Ink on wood panel - Sesame stain
@@ -50,7 +50,7 @@ India Ink on wood panel - Sesame stain
 
 <img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG00644-Pic1.jpg" width="100%">
 
-KG 00644 – “Gaze of Gold” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
+KG 00644 – “Gaze of Gold” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
 
 
 Gold and India Ink on wood panel - White stain
@@ -71,7 +71,7 @@ Gold and India Ink on wood panel - White stain
 
 <img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG02101B-Pic1.jpg" width="100%">
 
-KG 02101B – “Amphora of Gold” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
+KG 02101B – “Amphora of Gold” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
 
 
 Gold and White Ink on wood panel - Dark Oak stain
