@@ -12,12 +12,12 @@ Recently donated designs
 &nbsp;
 
 
-<img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG01915B-Pic1.jpg" width="100%">
+<img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/Photobook%201%20-%20Image%209.jpg" width="100%">
 
-KG 01915B – “The Followers” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
+KG 01636B – “Ascension” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
 
 
-White Ink on wood panel - Canadian Maple stain
+White Ink on wood panel - Antique Walnut stain
 
 12” (L) x 12” (W) x 0.75” (thick)
 
