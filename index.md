@@ -70,6 +70,19 @@ Gold Ink on wood panel - Antique Walnut stain
 &nbsp;
 
 
+<img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/Photobook%201%20-%20Image%203.jpg" width="100%">
+
+KG 00829 – “Royal Seal” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
+
+
+Gold Ink on wood panel - Dark Oak stain
+
+12” (L) x 12” (W) x 0.75” (thick)
+
+&nbsp;
+&nbsp;
+
+
 <img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG00797-Pic1.jpg" width="100%">
 
 KG 00797 – “The Spirit Urn” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
