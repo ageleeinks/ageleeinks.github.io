@@ -56,6 +56,20 @@ White Ink on wood panel - Mahogany stain
 &nbsp;
 
 
+
+<img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/Photobook%201%20-%20Image%2015.jpg" width="100%">
+
+KG 02005B – “Kiss the Wisp” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
+
+
+Gold Ink on wood panel - Antique Walnut stain
+
+12” (L) x 12” (W) x 0.75” (thick)
+
+&nbsp;
+&nbsp;
+
+
 <img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG00797-Pic1.jpg" width="100%">
 
 KG 00797 – “The Spirit Urn” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
