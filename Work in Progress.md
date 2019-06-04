@@ -24,7 +24,7 @@ India Ink on wood panel - Sesame stain
 
 <img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/Photobook%201%20-%20Image%2012.jpg" width="100%">
 
-KG 01944 – “Pathways” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **Available** **
+KG 01944 – “Pathways” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
 
 
 India Ink on wood panel - Sesame stain
