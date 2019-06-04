@@ -1,10 +1,10 @@
 
 ---
 layout: page
-title: 4x4 Show
+title: On paper
 
 ---
 
-Latest art designs shown at the "4x4 (and a little more) show" at the Hashtag Gallery in Toronto.
+Latest Kalliglipfs on paper with inks and watercolor.
 
 
