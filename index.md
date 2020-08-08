@@ -143,7 +143,7 @@ White Ink on wood panel - Mahogany stain
 <img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG00989-Pic1.jpg" width="100%">
 
 
-KG 00989 – “Torqued” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **Available** **
+KG 00989 – “Torqued” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
 
 
 White Ink on wood panel - Cherry stain
