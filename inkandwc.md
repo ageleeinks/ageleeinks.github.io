@@ -51,7 +51,7 @@ Red and Blue ink on paper
 
 <img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG03123C.jpg" width="100%">
 
-KG 03123C – “Dazzled Blur” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **Available** **
+KG 03123C – “Gliding Strands” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
 
 
 India and Red ink on paper
