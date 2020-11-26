@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Ink and Watercolor
+title: Ink and Watercolour
 
 ---
 Kalliglipfs with Ink and Watercolour
