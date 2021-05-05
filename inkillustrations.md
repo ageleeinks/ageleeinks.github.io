@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Ink Illustrations
+title: Illustrations
 
 ---
 Ink illustrations coming soon!
