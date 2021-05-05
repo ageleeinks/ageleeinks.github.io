@@ -1,10 +1,10 @@
 ---
 layout: page
-title: Gallery Show
+title: Gallery
 ---
 
 
-Recent Kalliglipfs artwork shown at the "4x4 (and a little more) show" at the Hashtag Gallery in Toronto.
+Kalliglipfs artwork shown at the "4x4 (and a little more) show" at the Hashtag Gallery in Toronto.
 
 
 &nbsp;
