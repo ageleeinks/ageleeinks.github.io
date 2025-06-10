@@ -38,7 +38,7 @@ India Ink on wood panel - Sesame stain
 
 <img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG01990-Pic1.jpg" width="100%">
 
-KG 01990 – “The Dance” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **Available** **
+KG 01990 – “The Dance” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
 
 
 India Ink on wood panel - Sesame stain
