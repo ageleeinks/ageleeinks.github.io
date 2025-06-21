@@ -25,7 +25,7 @@ India Ink on reclaimed wood panel (aged) - Sesame stain
 
 <img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG02372B.jpg" width="100%">
 
-KG 02372B – “The Rifters” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **Available** **
+KG 02372B – “The Rifters” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
 
 
 India Ink on reclaimed wood panel (aged) - Sesame stain
@@ -51,7 +51,7 @@ Red and Blue Ink on reclaimed wood panel (aged) - White stain
 
 <img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG02152B.jpg" width="100%">
 
-KG 02152B – “Storks of Gold” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **Available** **
+KG 02152B – “Storks of Gold” &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
 
 
 Gold ink on reclaimed wood panel (aged) - Black stain
@@ -65,7 +65,7 @@ Gold ink on reclaimed wood panel (aged) - Black stain
 
 <img src="https://github.com/ageleeinks/ageleeinks.github.io/raw/master/images/KG002669&KG2447B.jpg" width="100%">
 
-KG 002669 & KG 02447B – “Flow” (left) and “Awaken” (right) &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **Available** **
+KG 002669 & KG 02447B – “Flow” (left) and “Awaken” (right) &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ** **SOLD** **
 
 
 Gold Ink on reclaimed wood panel (aged) - Black stain
